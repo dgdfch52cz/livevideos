@@ -1,15 +1,19 @@
-Onde assistir? A transmissão ao vivo do jogo será no Space (TV por assinatura) e Max (streaming).
+Sporting está enfrentando Borussia Dortmund começando em 11 de fev. de 2025 às 20:00 UTC no José Alvalade estadio, Lisbon cidade, Portugal. A partida faz parte do Liga dos Campeões da UEFA, Knockout Phase.
 
-O Dortmund ganhou cinco dos oito jogos e terminou na 10ª colocação da primeira fase. A equipe alemã iniciou bem o torneio, mas as derrotas para Real Madrid, Barcelona e Bologna impediram a classificação direta às oitavas de final… - Veja mais em
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
 
-O Sporting terminou na 23ª posição, com 11 pontos em oito jogos. A vaga para os playoffs veio na última rodada após o empate em 1 a 1 com o Bologna.
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
 
-A equipe portuguesa vem de um empate em 1 a 1 com o Porto. Já os alemães foram derrotados pelo Stuttgart por 2 a 1 na última rodada do Campeonato Alemão.
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
 
-O Sporting recebe o Borussia Dortmund nesta terça-feira (11), às 17h00 (horário de Brasília). O confronto será disputado no Estádio José Alvalade, em Lisboa, pela partida de ida dos play-offs da Liga dos Campeões.
 
-As equipes buscam uma vaga na fase de oitavas de final. Enquanto os Leões ficaram em 23º lugar na primeira fase, os Aurinegros ficaram na 10ª colocação na tabela.
-
-O confronto será transmitido pela internet na plataforma de streaming Max. O serviço transmite todas as partidas da competição.
-
-Sporting x Dortmund -- Liga dos Campeões Data e hora: 11 de fevereiro, às 17h (de Brasília) Local: José Alvalade, em Lisboa (POR) Transmissão: Space (TV por assinatura) e Max (streaming)
+No placar ao vivo Sofascore você encontra todos os resultados anteriores das partidas entre Sporting e Borussia Dortmund ordenados por seus confrontos diretos. Sofascore também oferece a melhor maneira de acompanhar o placar ao vivo desta partida com vários detalhes esportivos. Assim, você pode:
+Detalhes do evento:
+NOME: Sporting - Borussia Dortmund
+DATA: 11 de fev. de 2025
+HORA: 20:00 UTC
+ESTÁDIO: José Alvalade, Lisbon, Portugal
+Descubra quem marcou em uma partida ao vivo
+Obtenha informações ao vivo sobre qual time está dominando a partida usando Attack Momentum
+Siga estatísticas detalhadas tais como posse de bola, chutes, escanteios, chances criadas, cartões, passes matadores, duelos e mais
+Siga todas as partidas em casa e fora de casa do(a) Liga dos Campeões da UEFA, Knockout Phase
