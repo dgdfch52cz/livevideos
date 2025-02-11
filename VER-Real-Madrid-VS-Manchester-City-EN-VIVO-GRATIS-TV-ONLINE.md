@@ -1,5 +1,10 @@
 Este martes en el Etihad Stadium, los Citizens y el Merengue se enfrentan tempranamente en la competencia debido a sus irregulares rendimientos previos. Conocé lo que debés saber del duelo que iniciará a las 17.00.
 
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
+
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
+
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
 
 Manchester City y Real Madrid se medirán este martes, desde las 17.00 en el Estadio Etihad, por los 16avos de final de la Champions League. Está será la cuarta edición consecutiva en la que se enfrentan estos gigantes europeos, a diferencia de las anteriores en está oportunidad es en una instancia tempranera debido a que han tenido malos desempeños en la fase de grupos. Conocé las formaciones, dónde verlo en vivo y más.
 
