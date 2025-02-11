@@ -1,6 +1,10 @@
 Champions League, stasera al via i play-off. Alle 21 in campo Juventus-Psv Eindhoven
 
-Dopo la fase a girone unico, la competizione calcistica per club più importante d’Europa riparte dal turno dei play-off, in cui sono impegnate in gara di andata e ritorno le 16 squadre che si sono piazzate dal nono al 24esimo posto: chi passa accede agli ottavi di finale. Stasera in campo i bianconeri che ospitano la formazione dei Paesi Bassi. Domani invece tocca ad Atalanta e Milan
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
+
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
+
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
 
 La Champions League, nella nuova formula introdotta in questa stagione, dopo la fase con il girone unico prosegue con il turno play off. Le 16 squadre che si sono piazzate dal nono al 24esimo posto si affrontano in gara di andata e ritorno per accedere agli ottavi di finale. Sono tre le italiane impegnate (mentre l’Inter è già agli ottavi e il Bologna è stato eliminato): la prima a scendere in campo, questa sera, è la Juventus che affronta in casa il Psv Eindhoven. Domani invece tocca ad Atalanta e Milan. I bergamaschi faranno visita al Club Brugge mentre i rossoneri saranno di scena nei Paesi Bassi contro il Feyenoord (TUTTI GLI HIGHLIGHTS DI CHAMPIONS LEAGUE).
 
